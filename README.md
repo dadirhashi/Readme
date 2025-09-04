@@ -1,5 +1,3 @@
-👋 Who am I?
-
 Hi! My name is Abdulkadir and I’m currently a student at NBI/Handelsakademin.
 
  🎯 What do I want to learn?
